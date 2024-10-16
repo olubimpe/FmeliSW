@@ -1,0 +1,1 @@
+Ths is the beginning of my jounery to become a software developer
